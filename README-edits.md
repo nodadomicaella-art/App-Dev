@@ -10,5 +10,10 @@
 **Final Destination** - A horror movies about a group of people who narrowly want to escape a catastrophic event after one of them predicts the disaster.
 **Avengers** - A team of Marvel superheroes, mostly includes Iron Man, Captain America, Hulk, Thor and Black Widow.
 
+### What I like about them
+**This Series/Movies are my stress reliever. Everytime I watch it, I forget my problems for a while.**
+
+
+
 
 
