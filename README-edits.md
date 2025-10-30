@@ -13,6 +13,25 @@
 ### What I like about them
 **This Series/Movies are my stress reliever. Everytime I watch it, I forget my problems for a while.**
 
+### Reasons I like them
+1. The story is thrilling.
+2. The movie is full of exciting actions scenes.
+3. It teaches us to be brave, how important to have a teamwork with others and teach us to never easily to give up.
+
+---
+### Other Series/Movies I definetely enjoy to watch
+- Alice in Boarderland
+- Stranger Things
+- Wednesday
+
+Here is a link to watch this Series/Movies:
+[Alice in Boarderland], [Stranger Things], [Wednesday](https://www.netflix.com/)
+
+Here is a example image for this:
+![Stranger Things](https://www.netflix.shop/)
+
+
+
 
 
 
